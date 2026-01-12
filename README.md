@@ -1,7 +1,7 @@
 ## Hey there, yeah you,
 
 
-**BenedictionSimeons/BenedictionSimeons** is a ✨ student at life and engineering ✨ teach me anything
+**Benediction Bora Simeons** is a ✨ student at life and engineering ✨ teach me anything
 
 Here's a little peek into my cacoon,
 
